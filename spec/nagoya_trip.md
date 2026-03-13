@@ -209,3 +209,53 @@
     *   **哪裡買**：各大超市 (如 AEON)、名古屋車站伴手禮區、中部國際機場等。
 15. **[JR東海美食] 小雞布丁蛋糕 ぴよりん (Piyorin)**：雖然只能冷藏且極易變形（被戲稱「最難帶回家的伴手禮」），但非常推薦在回程的新幹線或帶回飯店享用，小雞造型超可愛且布丁細緻濃郁。
     *   **哪裡買**：名古屋車站內的「ぴよりん shop」或「Café gentiane」。
+
+---
+
+## 15 大名古屋推薦咖啡廳
+
+1.  **[コメダ珈琲店 (Komeda's Coffee) 本店](https://www.google.com/maps/search/?api=1&query=%E3%82%B3%E3%83%A1%E3%83%80%E7%8F%88%E7%90%B2%E5%BA%97+%E6%9C%AC%E5%BA%97)**
+    *   **位置**：昭和區 (近地下鐵「いりなか」站)
+    *   **特色**：名古屋最知名的連鎖早餐發祥地，點飲料送吐司的「晨間套餐」必吃。
+2.  **[コンパル (Konparu) 大須本店](https://www.google.com/maps/search/?api=1&query=%E3%82%B3%E3%83%B3%E3%83%91%E3%83%AB+%E5%A4%A7%E9%A0%88%E6%9C%AC%E5%BA%97)**
+    *   **位置**：中區大須商店街
+    *   **特色**：名古屋老字號喫茶店，以超澎湃的「炸蝦三明治」聞名。
+3.  **[BUCYO Coffee KAKO](https://www.google.com/maps/search/?api=1&query=BUCYO+Coffee+KAKO)**
+    *   **位置**：中村區 (名古屋車站步行約10-15分鐘)
+    *   **特色**：人氣極高的排隊名店，自製的小倉紅豆泥配上鮮奶油吐司絕對是必吃的靈魂美食。
+4.  **[コーヒーハウス かこ (KAKO) 花車本店](https://www.google.com/maps/search/?api=1&query=%E3%82%B3%E3%83%BC%E3%83%92%E3%83%BC%E3%83%8F%E3%82%A6%E3%82%B9+%E3%81%8B%E3%81%93+%E8%8A%B1%E8%BB%8A%E6%9C%AC%E5%BA%97)**
+    *   **位置**：中村區/國際中心站附近
+    *   **特色**：名古屋市內首家自家烘焙咖啡店，果醬佐小倉紅豆吐司加上彩繪玻璃窗非常有復古風情。
+5.  **[洋菓子・喫茶 ボンボン (Bonbon)](https://www.google.com/maps/search/?api=1&query=%E6%B4%8B%E8%8F%93%E5%AD%90%E3%83%BB%E5%96%AB%E8%8C%B6+%E3%83%9C%E3%83%B3%E3%83%9C%E3%83%B3)**
+    *   **位置**：東區 (近地下鐵高岳站)
+    *   **特色**：充滿昭和復古浪漫的洋菓子與喫茶店，蛋糕便宜又好吃。
+6.  **[喫茶 ツヅキ (Kissa Tsuzuki)](https://www.google.com/maps/search/?api=1&query=%E5%96%AB%E8%8C%B6+%E3%83%84%E3%83%85%E3%82%AD)**
+    *   **位置**：中村區 (近太閤通站)
+    *   **特色**：以「從高處倒入咖啡與牛奶」的超吸睛拿鐵拉花表演 (天井落とし) 而聞名。
+7.  **[喫茶 ニューポピー (Kissa New Poppy)](https://www.google.com/maps/search/?api=1&query=%E5%96%AB%E8%8C%B6+%E3%83%8B%E3%83%A5%E3%83%BC%E3%83%9D%E3%83%94%E3%83%BC)**
+    *   **位置**：西區 (四間道老街內)
+    *   **特色**：隱身在百年古民家四間道老街的自家烘焙咖啡，鐵板小倉吐司為必點招牌。
+8.  **[珈琲処 カラス (Karasu)](https://www.google.com/maps/search/?api=1&query=%E7%8F%88%E7%90%B2%E5%87%A6+%E3%82%AB%E3%83%A9%E3%82%B9)**
+    *   **位置**：中區 (近伏見站)
+    *   **特色**：也是深受在地人喜愛的純喫茶，深色木質調與厚片小倉吐司充滿濃濃昭和味。
+9.  **[長靴と猫 (Nagagutsu to Neko)](https://www.google.com/maps/search/?api=1&query=%E9%95%B7%E9%9D%B4%E3%81%A8%E7%8C%AB)**
+    *   **位置**：中區 (榮站地下街/商圈)
+    *   **特色**：以宮澤賢治童話故事為主題的咖啡廳，店內裝潢迷幻可愛，有各式貓咪擺飾。
+10. **[HARBS 榮本店](https://www.google.com/maps/search/?api=1&query=HARBS+%E6%A0%84%E6%9C%AC%E5%BA%97)**
+    *   **位置**：中區 (榮站電視塔附近)
+    *   **特色**：風靡全日本的水果千層蛋糕名店，本店就在名古屋，切片蛋糕份量超滿足！
+11. **[シヤチル (Shachill)](https://www.google.com/maps/search/?api=1&query=%E3%82%B7%E3%83%A4%E3%83%81%E3%83%AB)**
+    *   **位置**：千種區 (近今池站)
+    *   **特色**：融合了新潮與復古的「Neo喫茶」，帶有硬度的布丁在 IG 上大受歡迎。
+12. **[ヴァンサンヌ ドゥ (Vincennes Deux)](https://www.google.com/maps/search/?api=1&query=%E3%83%B4%E3%82%A1%E3%83%B3%E3%82%B5%E3%83%B3%E3%83%8C+%E3%83%89%E3%82%A5)**
+    *   **位置**：中區 (榮商圈)
+    *   **特色**：非常有氣氛的隱性地下室咖啡廳，現烤蘋果派 (アップルパイ) 極度美味。
+13. **[ぴよりん (Piyorin) STATION Café gentiane](https://www.google.com/maps/search/?api=1&query=%E3%81%B4%E3%82%88%E3%82%8A%E3%82%93STATION+Cafe+gentiane)**
+    *   **位置**：中村區 (名古屋車站內)
+    *   **特色**：為了可愛吸睛的「名古屋小雞布丁蛋糕」，隨時都大排長龍的車站人氣咖啡廳。
+14. **[KAKO 柳橋店](https://www.google.com/maps/search/?api=1&query=KAKO+%E6%9F%B3%E6%A9%8B%E5%BA%97)**
+    *   **位置**：中村區 (近名古屋車站/江川線)
+    *   **特色**：花車本店的姐妹店，同樣擁有美味的自製果醬與小倉吐司，排隊人潮相對本店少一些。
+15. **[星乃珈琲店 名古屋榮店](https://www.google.com/maps/search/?api=1&query=%E6%98%9F%E4%B9%83%E7%8F%88%E7%90%B2%E5%BA%97+%E5%90%8D%E5%8F%A4%E5%B1%8B%E6%A0%84%E5%BA%97)**
+    *   **位置**：中區 (榮商圈)
+    *   **特色**：雖然是知名連鎖店，但招牌的窯烤舒芙蕾鬆餅與手沖咖啡水準極佳，逛街累了非常適合休息。
